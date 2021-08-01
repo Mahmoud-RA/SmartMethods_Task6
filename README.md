@@ -1,0 +1,1 @@
+# SmartMethods_Task6
